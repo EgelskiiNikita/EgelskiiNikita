@@ -7,7 +7,7 @@ My objectives are prescribed by top values:
 
 Thus, my goal is to find solutions to acute and crucial problems in order to make life easier for myself and society; it will allow me to feel proud of myself and wake up energized every morning.
 
-If you feel like sharing same ideas, do not hesitate to contact me at *https://hh.ru/resume/29e6f630ff059604ce0039ed1f4f50586a4167*
+If you feel like sharing same ideas, do not hesitate to contact me at *[https://hh.ru/resume/29e6f630ff059604ce0039ed1f4f50586a4167](https://hh.ru/resume/260a0b6aff0b09ee420039ed1f46706b797148)*
 
 
 
